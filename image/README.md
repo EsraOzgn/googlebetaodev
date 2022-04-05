@@ -1,1 +1,0 @@
-# Kodluyoruz.org GoogleBeta ödevi
